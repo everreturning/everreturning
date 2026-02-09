@@ -12,7 +12,7 @@
 
 <p align="center">Pʟᴇᴀsᴇ Iɴᴛ ғʀᴇᴇʟʏ! I ᴇɴᴊᴏʏ ᴍᴀᴋɪɴɢ ғʀɪᴇɴᴅs.
 
-<p align="center">Aɴʏᴏɴᴇ ᴄᴀɴ ᴏғᴄ C+H ᴏʀ Iɴᴛ ғʀᴇᴇʟʏ ᴜɴʟᴇss sᴛᴀᴛᴇᴅ ʙᴜᴛ I'ᴍ ᴀ ᴘʀᴇᴛᴛʏ ғʀɪᴇɴᴅʟʏ ғᴇʟʟᴏᴡ, ᴊᴜsᴛ ʀᴇᴀʟʟʏ sʜʏ!
+<p align="center">Aɴʏᴏɴᴇ ᴄᴀɴ ᴏғᴄ C+H ᴏʀ Iɴᴛ ғʀᴇᴇʟʏ ᴜɴʟᴇss sᴛᴀᴛᴇᴅ ʙᴜᴛ I'ᴍ ᴀ ᴘʀᴇᴛᴛʏ ғʀɪᴇɴᴅʟʏ ғᴇʟʟᴏᴡ, ᴊᴜsᴛ ʀᴇᴀʟʟʏ sʜʏ!w
 
 <p align="center">Bᴇғᴏʀᴇ C+H ᴘʟᴇᴀsᴇ ᴡʜɪsᴘᴇʀ ᴍᴇ ᴊᴜsᴛ ᴀs ᴀ ʜᴇᴀᴅs ᴜᴘ sɪɴᴄᴇ ɪᴛ ᴄᴀɴ ᴄᴀᴜsᴇ ᴍᴇ ᴛᴏ ɢᴇᴛ ɴᴇʀᴠᴏᴜs ɪғ ʏᴏᴜ ᴊᴜsᴛ sᴜᴅᴅᴇɴʟʏ C+H
 
@@ -27,4 +27,4 @@
 <p align="center">#Cᴏᴍᴍs; ᴘᴀʀᴛɪᴀʟʟʏ ᴄʟᴏsᴇᴅ
 
 
-<p align="center"><img width="1024" height="768" alt="PFP_20260209000845" src="https://github.com/user-attachments/assets/c4afc218-bb39-4508-978c-8f269a37e708" />
+<p align="center"><img width="900" height="700" alt="PFP_20260209000845" src="https://github.com/user-attachments/assets/c4afc218-bb39-4508-978c-8f269a37e708" />
