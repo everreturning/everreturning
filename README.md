@@ -16,6 +16,9 @@
 
 <p align="center">Bᴇғᴏʀᴇ C+H ᴘʟᴇᴀsᴇ ᴡʜɪsᴘᴇʀ ᴍᴇ ᴊᴜsᴛ ᴀs ᴀ ʜᴇᴀᴅs ᴜᴘ sɪɴᴄᴇ ɪᴛ ᴄᴀɴ ᴄᴀᴜsᴇ ᴍᴇ ᴛᴏ ɢᴇᴛ ɴᴇʀᴠᴏᴜs ɪғ ʏᴏᴜ ᴊᴜsᴛ sᴜᴅᴅᴇɴʟʏ C+H
 
+<p align="center"><img width="1024" height="768" alt="PFP_20260209000845" src="https://github.com/user-attachments/assets/c4afc218-bb39-4508-978c-8f269a37e708" />
+
+
 <p align="center">Usᴇ Tᴏɴᴇ ᴛᴀɢs
 
 <p align="center">───────────────────────────────────────────────────────────────────────────────
