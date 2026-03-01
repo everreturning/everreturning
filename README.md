@@ -5,7 +5,7 @@
 
 <p align="center"> |Insert something here| 
 
-<p align="center">Pronouns: He-it-Hym
+<p align="center">Pronouns: He-it-Hy
 <p align="center">───────────────────────────────────────────────────────────────────────────────
 
 <p align="center">Interact with cuation please , I enjoy making friends.
