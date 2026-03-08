@@ -5,8 +5,6 @@
 
 <p align="center"> Comissioner and Artist . Yet I post slow on Tumblr.
 
-<p align="center"> For Pony Town: Please do not copy my skins unless you are a close friend you can take ispo but not fully copy unless you've asked me.
-
 <p align="center">Pronouns: He-it-They
 
 <p align="center">───────────────────────────────────────────────────────────────────────────────
