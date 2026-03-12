@@ -1,28 +1,2 @@
 
-<p align="center"> Ferrum
-  
-<p align="center"> 
-
-<p align="center"> Comissioner and Artist . Yet I post slow on Tumblr.
-
-<p align="center"> Pronouns: He-it-They
-
-<p align="center"> ───────────────────────────────────────────────────────────────────────────────
-
-<p align="center"> Interact with cuation please , I enjoy making friends.
-
-<p align="center"> Anyone can ofc C+H or Int freely unless stated but I'm a pretty friendly person, just get anxious sometimes.
-
-<p align="center"> Before cuddling with me please whisper me just as a heads up since it can cause me to get nervous if you just suddenly cuddle.
-  
-<p align="center"> Use tone tags , please.
-
-<p align="center"> ───────────────────────────────────────────────────────────────────────────────
-
-<p align="center"> This is a work in progress. 
-
-<p align="center"> note my sites may be removed due to having to remake everything, due to my identity always changing which is so freakin' annoying.
-
-<p align="center"> ───────────────────────────────────────────────────────────────────────────────
-
-<p align="center"> #Cᴏᴍᴍs; ᴘᴀʀᴛɪᴀʟʟʏ ᴄʟᴏsᴇᴅ
+<img width="4096" height="3072" alt="Untitled172_20260312180703" src="https://github.com/user-attachments/assets/009b65d5-eff9-41ac-bcdb-9c7345ed01fb" />
