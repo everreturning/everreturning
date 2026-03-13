@@ -1,1 +1,14 @@
-working on a new read me !
+⋮ ⌗ ┆ Working on a new read me !
+
+
+
+
+⋮ ⌗ ┆ Mentions .
+
+♯ @venomousviperr
+
+♯ @sillydude01
+
+♯ @Machinimatic 
+
+These are the most freakin' coolest people around !! Pleaseplease go check them out !
